@@ -1,4 +1,5 @@
-## Hi there 👋
+## <img width="112" height="94" alt="polish-cow-transparent" src="https://github.com/user-attachments/assets/8c412477-0f0e-4b79-a698-68a3ab0d24e9" />
+
 
 <!--
 **amassaboi/amassaboi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
