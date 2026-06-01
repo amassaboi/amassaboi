@@ -1,4 +1,4 @@
-##<img width="320" height="320" alt="21_EDIT" src="https://github.com/user-attachments/assets/c46ac1c0-eb9a-4583-8972-8a8eefe6c99f" />
+
 
 ## <img width="112" height="94" alt="polish-cow-transparent" src="https://github.com/user-attachments/assets/8c412477-0f0e-4b79-a698-68a3ab0d24e9" />
 ## <img width="350" height="250" alt="ESQUELETO_FAZENDO_CAPOEIRA" src="https://github.com/user-attachments/assets/6dd60ab1-be72-453d-bb16-99032abb1ae4" />
