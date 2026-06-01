@@ -1,4 +1,5 @@
 ## <img width="112" height="94" alt="polish-cow-transparent" src="https://github.com/user-attachments/assets/8c412477-0f0e-4b79-a698-68a3ab0d24e9" />
+## <img width="112" height="94" alt="polish-cow-transparent" src="https://pin.it/jfFR6Knau" />
 
 
 <!--
