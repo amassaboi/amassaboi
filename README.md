@@ -1,5 +1,7 @@
 ## <img width="112" height="94" alt="polish-cow-transparent" src="https://github.com/user-attachments/assets/8c412477-0f0e-4b79-a698-68a3ab0d24e9" />
-## <img src="https://br.pinterest.com/pin/609885974519861502/" />
+## <img src="https://github.com/user-attachments/assets/4e299b6e-5a3d-4b87-977f-3b1a878d12ee" />
+
+
 
 
 <!--
