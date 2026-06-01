@@ -1,7 +1,7 @@
 
 ## <img width="112" height="94" alt="polish-cow-transparent" src="https://github.com/user-attachments/assets/8c412477-0f0e-4b79-a698-68a3ab0d24e9" />
 ## <img width="350" height="250" alt="ESQUELETO_FAZENDO_CAPOEIRA" src="https://github.com/user-attachments/assets/6dd60ab1-be72-453d-bb16-99032abb1ae4" />
-;
+
 
 
 
